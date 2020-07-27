@@ -1,1 +1,0 @@
-# RikaJapan.github.io
